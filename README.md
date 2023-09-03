@@ -13,3 +13,8 @@
 #### 2. SDN Ketabang 1 | Surabaya `2010-2017`
 #### 3. SMP Negri 37 | Surabaya `2017-2020`
 #### 4. SMA Muhammadiyah 2 | MIPA | Surabaya `2020-2023`
+
+## Riwayat Organisasi:
+
+#### 1. PR IPM SMA Muhammadiyah 2 | Anggota Bidang Pengkajian Ilmu Pengetahuan | Surabaya `2020-2021`
+#### 1. PR IPM SMA Muhammadiyah 2 | Ketua Bidang IPMAWATI | Surabaya `2021-2022`
